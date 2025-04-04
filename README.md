@@ -11,5 +11,5 @@
 
 更多原创 AI 技术系列教程，点击这里：[https://www.yuque.com/yuqueyonghupftxbc/ai100/klydnq5blhqq8x1s](https://www.yuque.com/yuqueyonghupftxbc/ai100/klydnq5blhqq8x1s)
 
-加入《小而精的 AI学习圈》知识星球，一起学习 AI ： [点击这里，我们星球见]([https://mp.weixin.qq.com/s/_c7KlPvGUV3pMgFg2uRD6Q](https://www.yuque.com/yuqueyonghupftxbc/ai100/aiy5vb3bu2id5agp))
+加入《小而精的 AI学习圈》知识星球，一起学习 AI ： [点击这里，我们星球见](https://www.yuque.com/yuqueyonghupftxbc/ai100/aiy5vb3bu2id5agp)
 
